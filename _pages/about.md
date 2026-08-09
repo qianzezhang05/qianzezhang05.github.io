@@ -17,7 +17,7 @@ My doctoral research is centered on the project: Decision Making in Generative A
 3. Information filtering using LLMs
 4. .....
 
-Always available email: qianzezhang@outlook.com
+If you have questions or are interested in collaborating on research projects, please feel free to contact me! Always available email: qianzezhang@outlook.com
 
 Pronunciation of my first name: **kee-AN-zee**
 
